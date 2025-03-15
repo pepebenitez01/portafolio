@@ -13,4 +13,4 @@
 
 ###José Benítez
 
-### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/jose-benitez-sanchez-0a372620b/)
+### Linkedin: https://www.linkedin.com/in/jose-benitez-sanchez-0a372620b/)
